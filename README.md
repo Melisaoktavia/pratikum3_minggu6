@@ -1,0 +1,1 @@
+# pratikum3_minggu6
